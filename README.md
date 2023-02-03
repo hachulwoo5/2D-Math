@@ -42,4 +42,4 @@
 
 
 ## 🎥 플레이 영상
-[YouTube ⏯️](https://youtu.be/xq9QwuGJtns)
+[YouTube ⏯️](https://youtu.be/uIvrTF9onCI)
